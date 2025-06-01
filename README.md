@@ -1,0 +1,2 @@
+# NodoPrivado
+Tu enlace cripto
